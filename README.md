@@ -11,7 +11,7 @@
 
 
 
-- 📫 How to reach me **nahid35-1054@gmail.com**
+- 📫 How to reach me **nusrulnakibnahid.mail@gmail.com**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
